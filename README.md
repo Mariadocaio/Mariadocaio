@@ -6,8 +6,8 @@
 
 ### meios de entrar em contato comigo.
 
-maria.emboaba@escola.pr.gov.br
+- Email: maria.emboaba@escola.pr.gov.br
 
-@__mariaeduarda1
+- instagram: @__mariaeduarda1
 
 ![](https://media.tenor.com/DLL_63y0wCcAAAAd/maria-jose-maria-cururu.gif)
