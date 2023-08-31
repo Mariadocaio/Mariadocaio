@@ -10,4 +10,4 @@ maria.emboaba@escola.pr.gov.br
 
 @__mariaeduarda1
 
-![]{https://media.tenor.com/_DGKT8FUO68AAAAd/maria-cardoso-dance.gif}
+![](https://media.tenor.com/DLL_63y0wCcAAAAd/maria-jose-maria-cururu.gif)
